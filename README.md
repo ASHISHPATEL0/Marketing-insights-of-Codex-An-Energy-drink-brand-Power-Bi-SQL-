@@ -84,7 +84,7 @@ Key Ingredients:
 5. Balance between innovative and standard packaging options
 
 ---
-etails
+
 
 ## Acknowledgments
 - Survey participants for providing valuable insights
